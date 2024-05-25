@@ -114,3 +114,18 @@ Instructions:
 7. Drop tablespoon-sized balls of dough onto ungreased baking sheets.
 8. Bake for 8 to 10 minutes or until golden brown.
 9. Cool on wire racks.
+
+### New Dessert Recipe
+
+Ingredients: 
+- 900ml thickened cream
+- 400g (1 1/4 cups) bought lemon curd
+- 20 vanilla marshmallows, halved
+- 5 (70g each) bought meringue nests
+- 210g pkt shortbread fingers
+
+Instructions:
+1. Use electric beaters to beat the cream in a bowl until soft peaks form. Fold in 160g (1/2 cup) curd and three-quarters of the marshmallows. Crumble 4 meringues and half the biscuits over the cream mixture. Stir gently to combine.
+2. Spoon one-third of the cream mixture into a 2L (8 cup) serving bowl. Drizzle over half of the remaining curd. Crumble over 2 of the remaining biscuits. Add half of the remaining cream then top with the remaining curd and 2 more crumbled biscuits.
+3. Step 3
+Top with the remaining cream mixture. Crumble over the remaining meringue and biscuits. Scatter over remaining marshmallows to serve.
